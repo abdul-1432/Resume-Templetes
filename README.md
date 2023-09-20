@@ -20,7 +20,7 @@ Welcome to our collection of professional resume templates tailored for individu
 
 ## Getting Started
 
-1. **Browse Templates**: Take a look at our selection of resume templates in the [Template 1](https://docs.google.com/document/d/1RV6MoK_h13ohpaChGXia6bzfshKvCY8q/edit?usp=sharing&ouid=112318301889057418254&rtpof=true&sd=true), [Templates 3](https://drive.google.com/file/d/12EM2pYuZH0k4xRV_Qwa8mt_qh1sYjH3v/view?usp=sharing), [Templates 3](https://drive.google.com/file/d/12EM2pYuZH0k4xRV_Qwa8mt_qh1sYjH3v/view?usp=sharing) directory. Choose the one that best matches your style and career aspirations.
+1. **Browse Templates**: Take a look at our selection of resume templates in the [Template 1](https://docs.google.com/document/d/1RV6MoK_h13ohpaChGXia6bzfshKvCY8q/edit?usp=sharing&ouid=112318301889057418254&rtpof=true&sd=true), [Templates 2](https://drive.google.com/file/d/12EM2pYuZH0k4xRV_Qwa8mt_qh1sYjH3v/view?usp=sharing), [Templates 3](https://drive.google.com/file/d/12EM2pYuZH0k4xRV_Qwa8mt_qh1sYjH3v/view?usp=sharing) directory. Choose the one that best matches your style and career aspirations.
 
 2. **Download**: Click on the template you like, and you will find a download link or a button that allows you to save the template to your device.
 
